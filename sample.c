@@ -1,3 +1,5 @@
 dmfnksnfkdakjfhajsklhfklahf
 
-sladkmaldkjkshfks
+sladkmaldkjkshfk
+printf:djashbdjkasdjkasa
+:ss
